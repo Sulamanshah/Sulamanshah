@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Sulamab
+- 👋 Hi, I’m Sulaman
